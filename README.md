@@ -8,7 +8,7 @@
 
 <div align="center">
 
-color [tree](https://colormytree.me/2025/01KBA7H985Y5YV74ZGCNA3Q5CS) :3
+color [tree](https://colormytree.me/2025/01KBA7H985Y5YV74ZGCNA3Q5CS)
 
 </div>
 
