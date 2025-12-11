@@ -4,30 +4,25 @@
 
 [free palestine](https://arab.org/click-to-help/palestine)
 
-
-
-</div>
-
-
-<div align="center">
-
-
-
-<img width="946" height="563" alt="image" src="https://github.com/user-attachments/assets/8e75a4a7-9ede-46e1-b896-e482b47be748" />
-
-
 </div>
 
 
 
-
 <div align="center">
-
-
 
 color [tree](https://colormytree.me/2025/01KBA7H985Y5YV74ZGCNA3Q5CS)
 
 </div>
+
+
+
+<div align="center">
+
+<img width="946" height="563" alt="image" src="https://github.com/user-attachments/assets/8e75a4a7-9ede-46e1-b896-e482b47be748" />
+
+</div>
+
+
 
 <div align="center">
 
