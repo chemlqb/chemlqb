@@ -3,8 +3,8 @@
 <div align="center">
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-im going thru shit irl alright i still lofe u guys
-dniuf always im reclusive and i am not looking to make new friends
+im going thru shit irl alright i still lofe u guys<br/>
+dniuf always im reclusive and i am not <br/>looking to make new friends
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
