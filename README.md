@@ -1,7 +1,7 @@
 <div align="center">
 
-im going thru shit in life alright i still lofe u guys
-dniuid + dniuf im reclusive and i am not looking to make new friends
+im going thru shit irl alright i still lofe u guys
+dniuf always im reclusive and i am not looking to make new friends
 
 </div>
 
