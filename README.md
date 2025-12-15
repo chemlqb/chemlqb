@@ -28,8 +28,77 @@ dniuf always im reclusive and i am not looking to make new friends
 [free palestine](https://arab.org/click-to-help/palestine)
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </div>
+
+
+<div align="center">
+
+tick-tick till you′re twisted and god is gray<br/>
+the open end looks so filthy and misused<br/>
+but that's what they all say<br/>
+when i was little i would start in your middle<br/>
+but there was nowhere to grow but into<br/>
+now you can′t stop the beating and you're so frightened of demons<br/>
+can't you see how i belong to you<br/>
+together forever and ever<br/>
+you can′t kill me, i′m inside<br/>
+together forever and ever<br/>
+our dead love will never die<br/>
+tear off the face<br/>
+a kind of search and replace, a kind of food<br/>
+mommy's cleaning her closet and the flies they are all in the mood<br/>
+with your hand on the bible you look like a fresh amputee<br/>
+another tumor′s disciple praying she will not miscarry me<br/>
+together forever and ever<br/>
+you can't kill me, i′m inside<br/>
+together forever and ever<br/>
+our dead love will never die<br/>
+together forever and ever<br/>
+i am your's and you are mine<br/>
+together forever and ever<br/>
+our dead love will never die<br/>
+the toilet throat is polished<br/>
+breath smothered somewhere in space<br/>
+into this new dimension<br/>
+porn plucked from grace<br/>
+i will be your servant<br/>
+you are still my slave<br/>
+the grave is going blind<br/>
+and god is turning gray<br/>
+i don′t even mind if we slip all the way<br/>
+
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+</div>
+
 
 <div align="center">
 
