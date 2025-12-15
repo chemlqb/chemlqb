@@ -1,9 +1,12 @@
 
 
 <div align="center">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 im going thru shit irl alright i still lofe u guys
 dniuf always im reclusive and i am not looking to make new friends
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 </div>
 
@@ -11,11 +14,21 @@ dniuf always im reclusive and i am not looking to make new friends
 
 
 <div align="center">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 [![alt](https://github.com/user-attachments/assets/0546f71c-e411-465d-93fb-4566a4dae282)](https://arab.org/click-to-help/palestine)
 
+ㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
 [free palestine](https://arab.org/click-to-help/palestine)
 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </div>
 
 <div align="center">
