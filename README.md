@@ -1,6 +1,6 @@
 <div align="center">
 
-please dniuid 
+dniuid im going thru shit in life alright i still lofe u guys
 
 </div>
 
