@@ -13,8 +13,7 @@ https://github.com/user-attachments/assets/03e9219e-f467-4952-a49b-4564d6b8d614
 <div align="center">
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-im going thru shit irl alright i still lofe u guys<br/>
-dniuf always im reclusive and i am not <br/>willing to make new friends
+jay or real name<br/>she/they pref but any<br/>i'm reclusive
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
