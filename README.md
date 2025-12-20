@@ -1,6 +1,8 @@
 
 <div align="center">
 
+27._jay on discord send me pics of ur feet
+
 
 https://github.com/user-attachments/assets/8505d37c-ce60-4e71-94e7-56639fcfaf0d
 
