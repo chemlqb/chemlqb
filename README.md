@@ -4,7 +4,11 @@
 27._jay on discord send me pics of ur feet
 
 
-https://github.com/user-attachments/assets/8505d37c-ce60-4e71-94e7-56639fcfaf0d
+
+
+
+
+https://github.com/user-attachments/assets/dfbcb50f-2b13-4f5f-8d41-3b372f466427
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
