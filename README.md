@@ -3,7 +3,6 @@
 
 Im willing to commission you for art. Dm me on Discord or whisper me on #ponytown PLSSSSS
 
-<img width="856" height="581" alt="image" src="https://github.com/user-attachments/assets/24ff427d-ec8b-4eda-b659-37a9e600c503" />
 ㅤ
 
 </div>
