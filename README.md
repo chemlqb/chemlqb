@@ -18,7 +18,10 @@ Im willing to commission you for art. Dm me on Discord or whisper me on #ponytow
 
 
 
-https://github.com/user-attachments/assets/dfbcb50f-2b13-4f5f-8d41-3b372f466427
+https://github.com/user-attachments/assets/49ab043d-a596-4b3a-a912-26a2ca0efdca
+
+
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
