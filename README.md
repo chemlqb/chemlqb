@@ -1,11 +1,4 @@
-<div align="center">
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-Im willing to commission you for art. Dm me on Discord or whisper me on #ponytown PLSSSSS
-
-ㅤ
-
-</div>
 
 
 <div align="center">
