@@ -1,7 +1,8 @@
 <div align="center">
 
 draw her
-<img width="271" height="509" alt="image" src="https://github.com/user-attachments/assets/3e8a6679-29bd-4a98-81a5-4a991380ee12" />
+<img width="233" height="462" alt="image" src="https://github.com/user-attachments/assets/280be22d-4b1a-456d-9a5c-d087986e8a07" />
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 
