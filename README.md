@@ -1,7 +1,8 @@
 <div align="center">
 
-draw her and hmu on dc 27._jay i will pay you
-<img width="233" height="462" alt="image" src="https://github.com/user-attachments/assets/280be22d-4b1a-456d-9a5c-d087986e8a07" />
+27 mg of xanax ims
+<img width="476" height="161" alt="image" src="https://github.com/user-attachments/assets/cdaa3597-06c8-4d75-9838-5de06b2efc81" />
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ
