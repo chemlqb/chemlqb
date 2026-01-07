@@ -1,9 +1,5 @@
 <div align="center">
-
-fuckkit all 
-<img width="476" height="161" alt="image" src="https://github.com/user-attachments/assets/cdaa3597-06c8-4d75-9838-5de06b2efc81" />
-<img width="369" height="553" alt="image" src="https://github.com/user-attachments/assets/3ddcc723-e720-41ca-addb-bf52047aaec8" />
-
+<img width="736" height="1105" alt="image" src="https://github.com/user-attachments/assets/fd94a601-00dc-4db0-a506-96ed6e872c50" />
 
 
 
