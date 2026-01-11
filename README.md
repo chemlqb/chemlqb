@@ -6,7 +6,7 @@ https://github.com/user-attachments/assets/e9a9581c-45fa-4744-9ca3-efb314b101cc
 </div>
 
 <div align="center">
-<img width="736" height="1105" alt="image" src="https://github.com/user-attachments/assets/fd94a601-00dc-4db0-a506-96ed6e872c50" />
+
 
 
 
