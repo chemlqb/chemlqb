@@ -7,7 +7,7 @@ https://github.com/user-attachments/assets/e9a9581c-45fa-4744-9ca3-efb314b101cc
 
 <div align="center">
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31oyzmmo2vi5psgk7vhxm3g5x32e&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=000000)](https://github.com/kittinan/spotify-github-profile)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ
