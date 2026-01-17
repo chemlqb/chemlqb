@@ -1,7 +1,7 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/ntgi7v.png)
+![](https://files.catbox.moe/t2jd48.png)
 
 </div>
 
