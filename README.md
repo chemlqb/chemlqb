@@ -24,7 +24,7 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/4zsnyt.png)
+![](https://files.catbox.moe/4jdtur.png)
 
 </div>
 
