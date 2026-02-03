@@ -3,6 +3,10 @@
 
 <div align="center">
 
+mentally disabled</br>
+dniuf at all -_-------</br>
+i love [thomas] myempregstomac</br>
+< e 3
 
 </div>
 
@@ -10,8 +14,6 @@
 
 
 
-  ㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤ
 ㅤㅤㅤㅤㅤ
