@@ -5,9 +5,9 @@
 
 mentally disabled</br>
 dniuf at all -_-------</br>
-i love [thomas] myempregstomac</br>
+[thomas] myempregstomac best party</br>
+me best ia player</br>
 < e 3
-</br>best ia player
 
 
 </div>
