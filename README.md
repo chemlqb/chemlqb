@@ -4,7 +4,7 @@
 <div align="center">
 
 mentally disabled</br>
-dniuf at all -_-------</br>
+very minimal interaction if we're not friends -_----</br>
 [thomas] myempregstomac best party</br>
 me best ia player</br>
 < e 3
