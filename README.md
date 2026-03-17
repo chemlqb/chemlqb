@@ -2,6 +2,8 @@ i swear im getting better bro
 
 i really like geometry dash man
 
+uh i dont like talking to people i dont know keep interactions minimal please
+
 this is me if anyone cares
 <img width="964" height="970" alt="image" src="https://github.com/user-attachments/assets/966c6114-c784-4200-a37a-3227b6faafd3" />
 
