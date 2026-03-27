@@ -1,10 +1,4 @@
 im jay</br>
-
-
-
-<img width="322" height="117" alt="image" src="https://github.com/user-attachments/assets/df9c3fb2-d628-415d-9fdd-7eab2e81d7d6" /> </br>
-^ this is true
-
 Ill ignore you or if we arent friends srrrrrryyyyyyyyy
 <div align="center">
 
