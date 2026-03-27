@@ -4,7 +4,8 @@ Ill ignore you if i dont know you srrrrrryyyyyyyyy
 
 THIS IS me if anyone Gaf
 
-<img width="581" height="918" alt="image" src="https://github.com/user-attachments/assets/11fcccfa-3b6b-464a-bf24-d85b5f885bc8" />
+<img width="589" height="924" alt="image" src="https://github.com/user-attachments/assets/a250cd1e-33bb-4f9a-a989-ab3932cdd3cf" />
+
 
 
 </div>
