@@ -4,7 +4,7 @@ Ill ignore you or if we arent friends srrrrrryyyyyyyyy
 
 THIS IS me if anyone Gaf
 
-<img width="464" height="833" alt="image" src="https://github.com/user-attachments/assets/dd3ab5b7-6bcb-49a9-be8b-d9c624c98329" />
+<img width="581" height="918" alt="image" src="https://github.com/user-attachments/assets/11fcccfa-3b6b-464a-bf24-d85b5f885bc8" />
 
 
 </div>
