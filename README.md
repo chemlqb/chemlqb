@@ -1,5 +1,5 @@
 im jay</br>
-Ill ignore you or if we arent friends srrrrrryyyyyyyyy
+Ill ignore you if i dont know you srrrrrryyyyyyyyy
 <div align="center">
 
 THIS IS me if anyone Gaf
