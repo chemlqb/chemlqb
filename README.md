@@ -5,10 +5,13 @@ im jay</br>
 <img width="322" height="117" alt="image" src="https://github.com/user-attachments/assets/df9c3fb2-d628-415d-9fdd-7eab2e81d7d6" /> </br>
 ^ this is true
 
-
+Ill ignore you or if we arent friends srrrrrryyyyyyyyy
 <div align="center">
 
-https://github.com/user-attachments/assets/d0b2f269-d957-4a4d-b495-57735f3de987
+THIS IS me if anyone Gaf
+
+<img width="377" height="696" alt="image" src="https://github.com/user-attachments/assets/19689136-c0de-4569-a7da-c090045bd1bd" />
+
 
 </div>
 
