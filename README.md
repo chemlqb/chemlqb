@@ -1,5 +1,5 @@
 im jay</br>
-Ill ignore you if i dont know you srrrrrryyyyyyyyy
+Ill ignore you if i dont know you srrrrrryyyyyyyyy, small/short interactions are alright
 <div align="center">
 
 THIS IS me if anyone Gaf
