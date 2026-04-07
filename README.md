@@ -6,6 +6,7 @@ dni</br>
 - individuals who don't tell the truth</br>
 
 also im literally one of the best udg players (21m ds pre data wipe and i already have 1.6m after data wipe)
+proof v
 
 https://github.com/user-attachments/assets/988e98a7-23bd-4b2b-ab3b-776005487a42
 
