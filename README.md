@@ -1,4 +1,11 @@
-dni woke pussies 
+dni
+woke pussies 
+liars
+roblox fandoms
+LIARS
+individuals who don't tell the truth
+
+
 
 
 
