@@ -1,7 +1,7 @@
 dni</br>
 - woke pussies </br>
 - liars</br>
-- roblox fandoms</br>
+- anyone in any fandom IDDGAAAAAFFFFFFFFF</br>
 - LIARS</br>
 - individuals who don't tell the truth</br>
 
