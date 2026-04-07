@@ -1,9 +1,9 @@
-dni
-woke pussies 
-liars
-roblox fandoms
-LIARS
-individuals who don't tell the truth
+dni</br>
+- woke pussies </br>
+- liars</br>
+- roblox fandoms</br>
+- LIARS</br>
+- individuals who don't tell the truth</br>
 
 
 
