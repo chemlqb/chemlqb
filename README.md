@@ -1,10 +1,5 @@
-im jay</br>
-Ill ignore you if i dont know you srrrrrryyyyyyyyy, small/short interactions are alright
-<div align="center">
+dni woke pussies 
 
-THIS IS me if anyone Gaf
-
-<img width="589" height="924" alt="image" src="https://github.com/user-attachments/assets/a250cd1e-33bb-4f9a-a989-ab3932cdd3cf" />
 
 
 
