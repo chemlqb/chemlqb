@@ -11,7 +11,7 @@ proof v
 https://github.com/user-attachments/assets/988e98a7-23bd-4b2b-ab3b-776005487a42
 
 
-
+chemlqb on almost everything, pigfqce on discord
 
 
 
