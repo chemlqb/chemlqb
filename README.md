@@ -15,7 +15,7 @@ https://github.com/user-attachments/assets/988e98a7-23bd-4b2b-ab3b-776005487a42
 chemlqb on almost everything, pigfqce on discord
 
 <img width="768" height="820" alt="image_2026-04-09_173455946" src="https://github.com/user-attachments/assets/b49026b7-a5a2-49a5-9b05-e83c65dde2f9" /> </br>
-i love him so mcuh 😭
+< v 3
 
 
 
