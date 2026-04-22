@@ -7,6 +7,7 @@ i have extreme moodswings that can last for either very short periods of time or
 i joke abiut literally everything to cope, u can joke about me too i wont mind</br>
 i dont care about your e-dramas and controversies dont bring me into anything that i have nothing to do with</br>
 idc if you wanna copy my skins literally no one gaf its just a pony game</br>
+dni systems, <13, mcyt, roblox, Every Fandom
 
 also im literally one of the best udg players (21m ds pre data wipe and i already have 1.6m after data wipe)</br>
 proof v
