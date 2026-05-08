@@ -1,15 +1,7 @@
-this introduction is not an invitation for you interact with me</br>
 
-i go by any pronouns preferably they them</br>
-im seriously like very mentally ill</br>
-im diagnosed with a shit ton of mental disorders, which i wont be listing, but keep that in mind</br>
-i have extreme moodswings that can last for either very short periods of time or straight up weeks/months</br>
-i joke abiut literally everything to cope, u can joke about me too i wont mind</br>
-i dont care about your e-dramas and controversies dont bring me into anything that i have nothing to do with</br>
-idc if you wanna copy my skins literally no one gaf its just a pony game</br>
-dni systems, <13, mcyt, roblox, Every Fandom
+jay, they/any
 
-also im literally one of the best udg players (21m ds pre data wipe and i already have 1.6m after data wipe)</br>
+im literally one of the best udg players (21m ds pre data wipe and i already have 1.6m after data wipe)</br>
 proof v
 
 https://github.com/user-attachments/assets/988e98a7-23bd-4b2b-ab3b-776005487a42
