@@ -1,8 +1,10 @@
 # leave me out of your e-dramas.
 
-something my friend said ≠ something i believe/agree with
+something my friend said ≠ something i believe/agree with</br>
+thanks.</br></br>
+have something you wanna say? contact me via my [discord](https://discordapp.com/users/1277269625717129302/).</br>
+otherwise fuck off and leave me be. i have a life.
 
-thanks.
 
 
 https://github.com/user-attachments/assets/988e98a7-23bd-4b2b-ab3b-776005487a42
