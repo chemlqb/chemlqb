@@ -2,8 +2,8 @@
 
 something my friend said ≠ something i believe/agree with</br>
 don't drag me into shit just cause somebody said something to me.</br>
-it's not my job to talk to my friend about this. sort things out on your own.</br>
-don't be immature, thanks.</br></br>
+it's not my job to talk to my friend about this. sort things out on your own and don't be immature.</br>
+thanks.</br></br>
 have something you wanna say? contact me via my [discord](https://discordapp.com/users/1277269625717129302/).</br>
 otherwise fuck off and leave me be. i won't discuss <i>anything</i> that doesn't directly affect me. i have a life. 
 
