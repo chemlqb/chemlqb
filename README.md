@@ -9,6 +9,8 @@ otherwise fuck off and leave me be. i won't discuss <i>anything</i> that doesn't
 
 ---
 
+[![Discord Presence](https://lanyard.cnrad.dev/api/1277269625717129302)](https://discord.com/users/1277269625717129302)
+
 https://github.com/user-attachments/assets/988e98a7-23bd-4b2b-ab3b-776005487a42
 
 </div>
